@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Naye-lii
+- 👋 Hi, I’m @Nayeli Hdez.
 - 👀 I'm interested in research and development in power energy, energy storage systems, and programming.
 - 🌱 I'm currently learning web programming, distributed generation, and I'm improving my English skills
 - 💞️ I'm looking to collaborate on new innovative projects.
